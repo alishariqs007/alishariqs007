@@ -3,7 +3,7 @@
   
 # Hello There  :octocat:   السلام عليكم    
 
-A Software Engineering student At **Hajvery University** Lahore, Working with @[**Muhammad Tahir**](https://github.com/tahir-jamil)
+A Software Engineering student At **Hajvery University** Lahore, Working as freelancer @[**UpWork**](https://www.upwork.com/freelancers/~016d43eb9f4373618f)
 
 </div>
 
